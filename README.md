@@ -1,2 +1,2 @@
-I'm into computers and physics, always up for getting lost in a good novel, manga, or light novel. Love taking ideas and making them real.
-> 🤫 fun fact: I get dopamine from "making things happen"
+I'm into computers and physics, novel, manga, or light novel. Love taking ideas and making them real.
+> 🤫 fun fact: I really enjoy building things and seeing them actually work
